@@ -1,4 +1,4 @@
-# Hi 👋 I'm Nandy #
+# Hi 👋 I'm Nandhini #
 
 **Turning data into insights. Insights into decisions.**
 
